@@ -1,3 +1,3 @@
 Silvy Afrilia Salsadila  
-Ellyza Juana Putri 
+Ellyza Juana Putri  
 Dini Husaini  
